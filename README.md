@@ -2,4 +2,4 @@
 just playing
 
 i have no idea what im doing,
-im learning as i go.
+im just learning as i go.
